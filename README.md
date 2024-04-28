@@ -1,4 +1,3 @@
-
 ## Bayron Omar Nieto Hernández
 
 **Edad:** 31 años
